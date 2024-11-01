@@ -1,3 +1,2 @@
-![Screenshot_20241031_102530_YouTube.jpg](https://github.com/user-attachments/assets/c512ab39-9a35-4def-b0ac-507aaeb97737)
+![91c3344ccab63b834fb0b488484b7edb.png](https://github.com/user-attachments/assets/295808dc-9293-4aa9-a1b8-c17d38408c35)
 
-Vomits
